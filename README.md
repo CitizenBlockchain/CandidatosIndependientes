@@ -1,0 +1,2 @@
+# CandidatosIndependientes
+Democracia sin partidos
